@@ -1,1 +1,1 @@
-my second commit
+when i thought codding was Easy!!
